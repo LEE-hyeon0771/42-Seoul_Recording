@@ -21,4 +21,5 @@
 
 광클성공!!!!
 ![image](https://github.com/LEE-hyeon0771/42-Seoul_Recording/assets/84756586/c495678b-85b6-4bbb-80e5-ab1388c0fced)
+
 ID_Check 과정만을 남기고 있다. 나의 발전에 어느정도 도움이 될지는 모르겠지만, 여름방학 그 누구보다 열심히 살 수 있는 기회가 될 수 있을거라는 생각에는 변함이 없다. 
